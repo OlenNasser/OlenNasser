@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OlenNasser
+- 👀 I’m interested in physics, math, programming, economics, and history
+- 🌱 I’m currently in highschool taking a variety of science, math, programming, and business courses
+- 📫 You can email me at @olensbox@outlook.com
